@@ -1,14 +1,11 @@
 I’m MentalIssue
 
-ChrisCoder#8925's Mentor,
 Cheat and Anti-Cheat enthusiast,
 Side job coding,
 Braincell & I Miss The Rage Owner,
 Forbidden Sub-Owner,
 Accepting anti-cheat request,
 Former I Miss The Rage & Braincell Dev.
-
-Created Programming Languages "B", "B#" and "B++".
 
 Professional Procrastonist and Project Canceller
 
